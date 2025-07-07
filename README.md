@@ -10,7 +10,7 @@
  
 Ladies this yo man? 
 
-![Screenshot 2025-07-03 6 47 25 AM](https://github.com/user-attachments/assets/763b7a6a-b213-4fc2-b262-2d5019c4c455) <img src="https://static.vecteezy.com/system/resources/previews/016/694/678/non_2x/straw-broom-against-the-orange-brick-wall-photo.jpg" alt="Straw Broom Stock Photos, Images and Backgrounds for Free Download"/>![image](https://github.com/user-attachments/assets/08d9030a-5b1f-4fc1-a133-e859e3eb2872)
+![Screenshot 2025-07-03 6 47 25 AM](https://github.com/user-attachments/assets/763b7a6a-b213-4fc2-b262-2d5019c4c455) 
 
   *Interests*
 
