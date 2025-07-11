@@ -2,7 +2,7 @@
 
 ![a858279acc54da3620b91d5bcd67194e](https://github.com/user-attachments/assets/eb151b1f-c5a9-4dc3-85d2-d1be6ce01602) 
 
-<sub> K not much to say. You can call me Misty. C+H is fine even if it's not in my name unless with friends. Pronouns are not a very big concern for me so I'm fine with any except neos cause I know nothing about those. W2i so I don't miss what you say. I have ADHD but that won't impact how I interact with you I may just miss something you said and respond a bit late. I'm not very good at starting convos and can be awkward at times but I will try (Sorry Gavin lol). I make kys/kms jokes but mostly with people I'm close with so you probably won't have to worry about that if you don't like that stuff.
+<sub> K not much to say. You can call me Misty. C+H is fine even if it's not in my name unless with friends. Pronouns are not a very big concern for me so I'm fine with any except neos cause I know nothing about those. W2i so I don't miss what you say. I have ADHD but that won't impact how I interact with you I may just miss something you said and respond a bit late. I'm not very good at starting convos and can be awkward at times but I will try (Sorry Gavin lol). I warm up to people very easily so once we talk more i'll usually start the convos. Sometimes I make kys/kms jokes but mostly with people I'm close with so you probably won't have to worry about that if you don't like that stuff.
 
 ##### Basic dni.
 
