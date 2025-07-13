@@ -15,7 +15,7 @@ Ladies this yo man?
   *Interests*
 
   * <sub> In terms of music I like trap metal and horror core you can just check my playlist (PLEASE SCROLL DOWN LIKE SCROLL I SWEAR IT GETS BETTER TRUST). And songs that they growl. Not in some weird 12 year old girl simp type way cause lowk if they do it right it's bomb trust
-  * <sub> Games I like are Forsaken, Grace, Mlp harmony quest-, Genshin impact but I can't let the gng know I fw that, fnf, COD ofc (Wish I could play campaign but that shit expensive so I watch it 😔)and probably more that forgot.
+  * <sub> Games I like are Forsaken(I LOVE FORSAKEN NOT THE FANDOM AHHAHAHAH), Grace, Mlp harmony quest-, Genshin impact but I can't let the gng know I fw that, fnf, CoD (Wish I could play campaign but that shit expensive so I watch it 😔)and probably more that forgot.
 * <sub> Animes I like are Jjk, Mha (I'm not a freak spare me), Dandandan, Mob pyscho, Akuma kun, Castlevania, Saiki K, Beastars (IT ActUALLY ISN'T BAD) and a lot more that I won't type because I'm a lazy bum.
 * <sub> Random shows I like are The umbrella academy, love death + robots, TLG (this counts), Ninjago, Sonic prime, Every existing sonic movie, and I suddenlly forgot every show I've ever watched so I'll edit this later 
 
