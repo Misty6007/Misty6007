@@ -1,3 +1,4 @@
 <sub> No I am not racist, homophobic or transphobic I just like south pak 😬
 
-  <img width="350" height="350" alt="image" src= https://i.postimg.cc/JzPn73kq/Screenshot-2026-03-14-6-12-05-PM.png />
+
+<img width="272" height="70" alt="image" src="https://github.com/user-attachments/assets/fa815f30-7c67-439d-9a5e-3947ad963767" />
