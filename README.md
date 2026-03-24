@@ -1,4 +1,4 @@
-<sub> No I am not racist, homophobic or transphobic I just like south pak 😬
+<sub> art by me 
 
 
-<img width="272" height="70" alt="image" src="https://github.com/user-attachments/assets/fa815f30-7c67-439d-9a5e-3947ad963767" />
+<img width="500" height="500" alt="image" src= "https://i.pinimg.com/736x/d6/89/32/d689320b40acba766ae548bd52e01bc2.jpg" />
